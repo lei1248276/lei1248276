@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+### get a fucking job！😮‍💨
+
 <!--
 **lei1248276/lei1248276** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
